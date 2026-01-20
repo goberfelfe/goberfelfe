@@ -1,3 +1,4 @@
+<!DOCTYPE html>
 - 👋 Hi, I’m gober
 - 😛 I’m interested in MANY things
 - 🌱 I’m currently learning javascript, css
