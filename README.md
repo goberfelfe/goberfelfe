@@ -1,5 +1,5 @@
 - 👋 Hi, I’m gober
-- 😛 I’m interested in MANY things
+- 😛 I’m interested in MANY things (including your mom)
 - 🌱 I’m currently learning javascript, css
 - 💞️ I’m looking to collaborate with friends
 - 📫 How to reach me: DO NOT TALK TO ME IM A MINOR
