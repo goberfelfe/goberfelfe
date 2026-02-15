@@ -2,7 +2,7 @@
 - 😛 I’m interested in MANY things (including your mom)
 - 🌱 I’m currently learning javascript, css
 - 💞️ I’m looking to collaborate with friends
-- 📫 How to reach me: DO NOT TALK TO ME IM A MINOR
+- 📫 How to reach me: dont, i'll probably talk to you first
 - ⚧️ Pronouns: I prefer she/her but I don't really care
 - ⚡ Fun fact: glugh
 
